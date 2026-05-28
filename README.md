@@ -1,0 +1,1 @@
+# hodinarstvostofa-sk
